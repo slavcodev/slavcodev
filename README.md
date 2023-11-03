@@ -6,5 +6,4 @@ I am a developer passionate to create. I’m looking to collaborate on _`<your i
 
 ## Links
 
-- Twitter: [@veamed](https://twitter.com/veamed)
 - LinkedIn: [veamed](https://www.linkedin.com/in/veamed)
